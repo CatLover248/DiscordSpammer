@@ -1,3 +1,3 @@
 # DiscordDestroyer
-To Spam my annoying irl classmates
+To Spam my irl classmates
 Enjoy using it to troll!
